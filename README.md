@@ -3,10 +3,6 @@
 Objectives & Content:
 https://catalog.foothill.edu/course-outlines/ART-4A/
 
-ART 4A: FUNDAMENTALS IN DRAWING:
-
-https://catalog.foothill.edu/course-outlines/ART-4A/
-
 Su21 ART F004B INTERMEDIATE DRAWING 03Z, 03Z Levitch 10651, 10652
 
 W23 ART F004C REPRESENTATIONAL DRAWING 01Y Levitch 30137
