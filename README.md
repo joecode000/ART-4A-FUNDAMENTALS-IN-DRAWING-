@@ -1,4 +1,6 @@
 # ART-4A-FUNDAMENTALS-IN-DRAWING-
+
+Objectives & Content:
 https://catalog.foothill.edu/course-outlines/ART-4A/
 
 ART 4A: FUNDAMENTALS IN DRAWING:
